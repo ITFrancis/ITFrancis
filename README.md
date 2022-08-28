@@ -12,4 +12,4 @@ You can click the Preview link to take a look at your changes.
 # 👋 Hi, I’m @ITFrancis
 - IT means IT, also means Italy.
 
-welcome you Follow me.
+- Welcome you Follow me.
